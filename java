@@ -1,5 +1,5 @@
 chaithu thinava raa
-vasava raa
+vasava
 adi dust bin loo
 thinna plate
 vesaa raa 
